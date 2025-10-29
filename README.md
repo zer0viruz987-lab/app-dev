@@ -28,7 +28,7 @@ that revolves around two agents and their journey to fend off their local aliens
 
 ### To start with my favourite Series.
 
->Mostly anime series
+==*Mostly anime series*==
 
 **Demon Slayer**
 Well we all know why this is the case.
@@ -37,8 +37,8 @@ Well we all know why this is the case.
 Steins Gate tackles one complex plot. A mix of science and comedy with the thrill of not
 existing at all when one mistake happens during their journey.
 
-**JoJo's Bizzare Adventure**
-Truly Bizzare and Fun. Just go watch it.
+**FATE Series**
+Fate Stay Night, Carnival Phantasm, Crimson Moon, literally anything.
 
 **Honorable Mentions**
 1. Kaguya-Sama: Love is War
