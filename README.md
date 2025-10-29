@@ -22,8 +22,9 @@ Just an overall fun and hilarious movie. It's a nice action driven and thrilling
 that revolves around two agents and their journey to fend off their local aliens.
 
 **Honorable Mentions**
->Maquia, When the Promised Flower Blooms
->The Notebook
+1. Maquia, When the Promised Flower Blooms
+2. The Notebook
+3. Rush Hour
 
 ### To start with my favourite Series.
 
@@ -40,5 +41,6 @@ existing at all when one mistake happens during their journey.
 Truly Bizzare and Fun. Just go watch it.
 
 **Honorable Mentions**
->Kaguya-Sama: Love is War
->Cinderella Gray
+1. Kaguya-Sama: Love is War
+2. Cinderella Gray
+3. Neon Genesis: Evangelion
