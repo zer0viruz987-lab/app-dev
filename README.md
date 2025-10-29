@@ -41,3 +41,4 @@ Truly Bizzare and Fun. Just go watch it.
 
 **Honorable Mentions**
 >Kaguya-Sama: Love is War
+>Cinderella Gray
